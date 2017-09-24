@@ -1,0 +1,1 @@
+Now there are more people taking a knee.
